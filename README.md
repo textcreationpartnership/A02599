@@ -36,8 +36,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
+William Cowper Esqr. Clerk of the Parliaments.FAX MENTIS HONESTAE GLORIA
+1. To the most vertuouse, myghtye, and excellent prynce, kynge Edwarde the. vi. by the grace of God kynge of Englande, Fraunce, and Irelande, defendar of the faythe, and in earthe vndre Christe, of the churches of the seyde England and Ireland the supreme heade, his most humble subiect Iohan Bale, wisheth all honour, helthe, and felycyte.
+
+1. ¶ The Autours names both Englysh and other, out of whome thys present boke is collected.
 AADelbaldus Traiectensis.Aegidius Faber.Aneas Syluius.Alanus Teukesbury.Albertus Crants.Alexander TeBBaptista Platina.Baptista Mantuanus.Barnefridus Vrspergensis.Bedas Girvuinus.Benedictus de burgo PeCCaius Sempronius.Caesarius Monachus.Christianus Massaeus.Christophorus Marcellus.Chronicon CalesianDDoctor Origenes.Dunelmensis Monachus.Damianus Cardinalis.De utraque potestate.EEadmerus Cantuariensis.Egesippus Historicus.Erasmus Roterodamus.Etheiredus Rhieuallensis.Eusebius CFFabianus Chronographus.Fabius Pictor.Flauius Blondus.Flores historiarum.Franciscus Bonadus.GGeorgius VVicelius.Giraldus Cambrensis.Godfridus Viterbiensis.Gracianus Monachus.Guido Perpinianus.HHaremannus Shedel.Hector Boethius.Helinandus Monachus.Henricus Huntendunensis.Henricus Bradsha.HereIIacobus Meyer.Iacobus Bergomas.Ioannes Hagustaldensis.Ioannes Sarisburiensis.Ioannes Fiberius.IoannLLambertus Shafnaburgensis.Lanfrancus Archiepiscopus.Legendarium Ecclesiae.Lelandus Antiquarius.MMacrobius Aurelius.Marcus Cicero.Marcus Sabellicus.Marianus Scotus.Martialis Valerius.Martinus CarsNNauclerus Historicus.Nicolaus Treueth.Nigellus Eliensis.OOdo Cluniacensis.Origines Doctor.Osbernus Cantuariensis.Otho Phrisingensis.Ouidius Naso.PPamphilus Graecus.Paulus Phrigio.Paulus Aemilius.Petrus Damianus.Petrus Blesensis.Petrus Equilinus.RRadulphus de Diceto.Radulphus Niger.Radulphus Cogeshale.Ranulphus Cestriensis.Raphael Volateranus.RSScalamundi.Sebastianus Murrho.Sigebertus Gemblacensis.Simeon Dunelmensis.Stephanus Langton.TThomas Rudborne.Thomus Monmouth.Thomas VValden.Thomas Scrope.Titus Liuius.Turstinus Eboracensis.VValerius Martialis.Valerius Anselmus Rid.Vergilius Maro.Vergilius Polidorus.Vincentius Bel••censis.XXenophon Atheniensis.
-1. Faultes escapinge the prynter in the seconde parte of thys vuorke.
+1. Faultes escapinge the printer in the first part of this worke.
+
+    _ Faultes escapinge the prynter in the seconde parte of thys vuorke.
 
 **Types of content**
 
